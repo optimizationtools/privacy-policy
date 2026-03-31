@@ -24,4 +24,4 @@ This privacy policy may be updated from time to time. Updates will be posted on 
 
 If you have questions about this policy, contact:
 
-[mathtools.dev@gmail.com](mailto:mathtools.dev@gmail.com)
+[joseph@optimizationtoolsllc.com](mailto:joseph@optimizationtoolsllc.com)
